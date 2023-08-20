@@ -1,3 +1,4 @@
+Template is downloaded and edited, you can check the details
 Thanks for downloading this template!
 
 Template Name: Appland
